@@ -1,0 +1,1 @@
+tex ridmi page
